@@ -30,5 +30,5 @@ But isn't it better to contribute back to the community?
 
 If you enjoy these works and want to contribute to the goals of
 this project, please
-make a contribution to the Woean's Philharmonic Advocacy
+make a contribution to the Women's Philharmonic Advocacy
 at http://www.wophil.org/
